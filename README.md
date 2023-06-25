@@ -1,0 +1,2 @@
+# scamGlitch
+easy money
